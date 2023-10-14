@@ -1,5 +1,5 @@
 
-## नमस्ते 🙏🏻
+## नमस्कार 🙏🏻
 I am  9andora, a Designer, Developer, Coder, CTF Player,Security Researcher and  Space enthusiast
 
 ### About 🙋🏻‍♂️
